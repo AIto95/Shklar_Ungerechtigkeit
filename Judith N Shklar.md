@@ -129,6 +129,7 @@ Judith Shklar gilt als eine der bedeutendsten liberalen Theoretikerinnen des 20.
 ### **Judith Shklar im Netz (Auswahl)**: 
 -	Die politische Philosophie der Judith N. Shklar - Liberalismus ohne Illusionen: https://www.br.de/mediathek/podcast/radiowissen/die-politische-philosophie-der-judith-n-shklar-liberalismus-ohne-illusionen/1853684
 -	Judith N. Shklar: „Über Hannah Arendt“. Kritik unter Geistesgrößen: https://www.deutschlandfunkkultur.de/judith-n-shklar-ueber-hannah-arendt-kritik-unter-100.html
+- Buchkritik von H. Bajohr: https://www.deutschlandfunkkultur.de/buchkritik-ad-judith-n-shklar-von-hannes-bajohr-rieke-trimcev-dlf-kultur-6782831d-100.html
 
 
 ### **Podcastsendungen (Auswahl)**: 

@@ -1,6 +1,6 @@
 # Judith N. Shklar: Über Ungerechtigkeit (050803)
 
-![Judith Shklar](Shklar.jpeg)
+![Judith Shklar](Shklar.jpeg
 
 **Inhalt**
 

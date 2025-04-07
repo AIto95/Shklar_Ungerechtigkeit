@@ -1,4 +1,4 @@
-# Aktuelle philosophische Texte zu künstlicher Intelligenz (050801)
+# Judith N. Shklar: Über Ungerechtigkeit (050803)
 
 ![Judith Shklar](Shklar.jpeg)
 

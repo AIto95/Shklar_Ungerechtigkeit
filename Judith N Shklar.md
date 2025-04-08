@@ -70,8 +70,11 @@ Beachten Sie die Handreichung zum wissenschaftlichen Arbeiten im Fach Philosophi
 ![Judith Shklar](judith-shklar.jpg)
 
 **Name:** Judith Nisse Shklar  
+
  **Geboren:** 24. September 1928 in Riga, Lettland  
+ 
 **Gestorben:** 17. September 1992 in Cambridge, Massachusetts, USA  
+
 **Beruf:** Politikwissenschaftlerin und politische Theoretikerin  
 
 ### **Leben**:

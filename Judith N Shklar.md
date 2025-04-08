@@ -111,16 +111,16 @@ Erste Fraz auf einer Festanstellung im Fachbereich Politische Wissenschaften an 
 
 4. **Moralische Urteilskraft**:
 
-  Shklar betont die Bedeutung individueller Urteilskraft in einer Welt ohne absolute Sicherheiten oder universelle Regeln.
+Shklar betont die Bedeutung individueller Urteilskraft in einer Welt ohne absolute Sicherheiten oder universelle Regeln.
 ---
+
 ## **Wichtige Werke**:
+
 - *After Utopia: The Decline of Political Faith* (1957)  
 - *Ordinary Vices* (*Ganz normale Laster*, 1984)  
 - *The Liberalism of Fear* (*Der Liberalismus der Furcht*, 1989)  
-
 - *Faces of Injustice* (*Über Ungerechtigkeit*, 1990)
 
-Judith Shklar hat mehrere einflussreiche Werke verfasst, die ihre zentrale Rolle in der politischen Theorie und Liberalismus-Debatte unterstreichen. Zu den wichtigsten zählen:
 
 **Der Liberalismus der Furcht (1989)**
 Dieses Werk ist ihr bekanntestes und prägendstes. Es formuliert eine liberale Theorie, die darauf abzielt, Grausamkeit und Machtmissbrauch zu verhindern. Shklar argumentiert, dass der Liberalismus vor allem die Freiheit sichern sollte, ohne Furcht Entscheidungen treffen zu können. Sie befürwortet eine konstitutionelle Demokratie, die Macht begrenzt und verteilt.
@@ -142,25 +142,25 @@ Dieses frühe Werk kritisiert utopisches Denken in der politischen Theorie und p
 Ihre kritischen Texte über Hannah Arendt beleuchten Unterschiede in den Denkansätzen der beiden Philosophinnen, insbesondere in Bezug auf Exil, Freiheit und politische Romantik. Diese Essays sind besonders relevant für das Verständnis von Shklars Position im Vergleich zu anderen großen politischen Theoretikern[2].
 Diese Werke prägen bis heute Debatten über Liberalismus, Gerechtigkeit und politische Ethik und machen Judith Shklar zu einer der bedeutendsten Denkerinnen des 20. Jahrhunderts.
 
----
-### **Bedeutung**:
+ **Bedeutung**:
 Judith Shklar gilt als eine der bedeutendsten liberalen Theoretikerinnen des 20. Jahrhunderts. Ihre Arbeiten haben bis heute Einfluss auf Debatten über politische Ethik, Machtbegrenzung und die Rolle von Freiheit in einer liberalen Gesellschaft.
 
+### **Zum Nachforschen**
 
-### **Sonstige Literatur (Auswahl)**: 
+# **Sonstige Literatur (Auswahl)**: 
 -	Hannes Bajohr und Rieke Trimçev: [Judith N. Shklar. Leben – Werk – Gegenwart](https://www.beck-shop.de/bajohr-trimev-ad-judith-n-shklar/product/33569982?srsltid=AfmBOooBwTjI0ZacYJTX_RDvWK6Ett0u1E_N57BvUAvT7yYH9MHVY1wX)
 -	Zeitschrift für Theoretische Philosophie:
 [Themenheft zur Shklars politischer Philosophie](hhttps://shop.budrich.de/wp-content/uploads/2022/01/1869-3016-2018-2.pdf)
 - Trimçev, Rieke: [Verbindlichkeitskonflikte und politische Verpflichtung](https://www.ssoar.info/ssoar/bitstream/handle/document/66276/ssoar-zpth-2018-2-trimcev-Verbindlichkeitskonflikte_und_politische_Verpflichtung.pdf?sequence=2&isAllowed=y&lnkname=ssoar-zpth-2018-2-trimcev-Verbindlichkeitskonflikte_und_politische_Verpflichtung.pdf)
 
-### **Judith Shklar im Netz (Auswahl)**: 
+# **Judith Shklar im Netz (Auswahl)**: 
 -	[Die politische Philosophie der Judith N. Shklar - Liberalismus ohne Illusionen](https://www.br.de/mediathek/podcast/radiowissen/die-politische-philosophie-der-judith-n-shklar-liberalismus-ohne-illusionen/1853684)
 
 -	[Judith N. Shklar: „Über Hannah Arendt“. Kritik unter Geistesgrößen](https://www.deutschlandfunkkultur.de/judith-n-shklar-ueber-hannah-arendt-kritik-unter-100.html)
 - [Buchkritik von H. Bajohr](https://www.deutschlandfunkkultur.de/buchkritik-ad-judith-n-shklar-von-hannes-bajohr-rieke-trimcev-dlf-kultur-6782831d-100.html)
 
 
-### **Podcastsendungen (Auswahl)**: 
+# **Podcastsendungen (Auswahl)**: 
 
 -	[Podcast Filosofie: Judith Shklar](https://podcasts.apple.com/de/podcast/judith-shklar/id1451841760?i=1000646349383)
 

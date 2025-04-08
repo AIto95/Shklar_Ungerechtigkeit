@@ -71,7 +71,7 @@ Beachten Sie die Handreichung zum wissenschaftlichen Arbeiten im Fach Philosophi
 
 **Name:** Judith Nisse Shklar  
 
- **Geboren:** 24. September 1928 in Riga, Lettland 
+**Geboren:** 24. September 1928 in Riga, Lettland 
  
 **Gestorben:** 17. September 1992 in Cambridge, Massachusetts, USA  
 
@@ -83,13 +83,13 @@ Beachten Sie die Handreichung zum wissenschaftlichen Arbeiten im Fach Philosophi
 Geboren in eine deutschsprachige jüdische Familie, floh sie 1939 mit ihrer Familie vor den Nationalsozialisten und Sowjets über die Transsibirische Eisenbahn nach Kanada.  
 
 - **Bildung:** 
-Studium der Politikwissenschaft an der McGill University in Montreal; Promotion an der Harvard University (1955).  
+Studium der Politikwissenschaft an der McGill University in Montreal; Promotion an der Harvard University (1955). 
 
-- **Karriere:** 
-Erste Frau auf einer Festanstellung im Fachbereich Politische Wissenschaften an der Harvard University. Sie lehrte dort bis zu ihrem Tod und wurde 1980 zur „John Cowles Professor of Government“ ernannt.
+- **Karriere**
+Erste Fraz auf einer Festanstellung im Fachbereich Politische Wissenschaften an der Harvward University. Sie lehrte dort bis zu ihrem Tod und wurde 1980 zur "John Cowles Professor of Goverment" ernannt.
 
----
-## **Philosophisches Denken**:
+
+### **Philosophisches Denken**:
 
  **"Liberalismus der Furcht"**:
 

@@ -71,34 +71,52 @@ Beachten Sie die Handreichung zum wissenschaftlichen Arbeiten im Fach Philosophi
 
 **Name:** Judith Nisse Shklar  
 
- **Geboren:** 24. September 1928 in Riga, Lettland  
+ **Geboren:** 24. September 1928 in Riga, Lettland 
  
 **Gestorben:** 17. September 1992 in Cambridge, Massachusetts, USA  
 
 **Beruf:** Politikwissenschaftlerin und politische Theoretikerin  
 
-### **Leben**:
-- **Herkunft und Flucht:** Geboren in eine deutschsprachige jüdische Familie, floh sie 1939 mit ihrer Familie vor den Nationalsozialisten und Sowjets über die Transsibirische Eisenbahn nach Kanada.  
-- **Bildung:** Studium der Politikwissenschaft an der McGill University in Montreal; Promotion an der Harvard University (1955).  
-- **Karriere:** Erste Frau auf einer Festanstellung im Fachbereich Politische Wissenschaften an der Harvard University. Sie lehrte dort bis zu ihrem Tod und wurde 1980 zur „John Cowles Professor of Government“ ernannt.  
+## **Leben**:
+
+- **Herkunft und Flucht:** 
+Geboren in eine deutschsprachige jüdische Familie, floh sie 1939 mit ihrer Familie vor den Nationalsozialisten und Sowjets über die Transsibirische Eisenbahn nach Kanada.  
+
+- **Bildung:** 
+Studium der Politikwissenschaft an der McGill University in Montreal; Promotion an der Harvard University (1955).  
+
+- **Karriere:** 
+Erste Frau auf einer Festanstellung im Fachbereich Politische Wissenschaften an der Harvard University. Sie lehrte dort bis zu ihrem Tod und wurde 1980 zur „John Cowles Professor of Government“ ernannt.
 ---
-### **Philosophisches Denken**:
+## **Philosophisches Denken**:
+
  **"Liberalismus der Furcht"**:
+
    - Ihr bekanntestes Konzept, das sie in ihrem Essay *The Liberalism of Fear* (1989) darlegte.
+
    - Zentraler Gedanke: Der Liberalismus soll vor allem Grausamkeit und Machtmissbrauch verhindern. Freiheit bedeutet für sie, ohne Furcht Entscheidungen treffen zu können.
+
    - Sie plädiert für eine liberale Demokratie, die Macht begrenzt und verteilt.
+
  **Fokus auf Ungerechtigkeit**:
+
    - In *Über Ungerechtigkeit* (1990) kritisiert sie, dass Philosophen oft nur Gerechtigkeit analysieren und das Thema Ungerechtigkeit vernachlässigen.
+
    - Sie betont die Bedeutung von Ungerechtigkeit als eigenständiges philosophisches Problem.
+
  **Ablehnung von Utopien**:
+
    - In ihrem Werk *After Utopia* (1957) kritisiert sie politische Ideologien, die sich auf utopische Zukunftsvisionen stützen, da diese oft die Gegenwart ignorieren.
+
 4. **Moralische Urteilskraft**:
+
    - Shklar betont die Bedeutung individueller Urteilskraft in einer Welt ohne absolute Sicherheiten oder universelle Regeln.
 ---
-### **Wichtige Werke**:
+## **Wichtige Werke**:
 - *After Utopia: The Decline of Political Faith* (1957)  
 - *Ordinary Vices* (*Ganz normale Laster*, 1984)  
 - *The Liberalism of Fear* (*Der Liberalismus der Furcht*, 1989)  
+
 - *Faces of Injustice* (*Über Ungerechtigkeit*, 1990)
 
 Judith Shklar hat mehrere einflussreiche Werke verfasst, die ihre zentrale Rolle in der politischen Theorie und Liberalismus-Debatte unterstreichen. Zu den wichtigsten zählen:
@@ -127,15 +145,20 @@ Judith Shklar gilt als eine der bedeutendsten liberalen Theoretikerinnen des 20.
 -	Hannes Bajohr und Rieke Trimçev: Judith N. Shklar. Leben – Werk – Gegenwart
 -	Themenheft zur Shklars politischer Philosophie: https://shop.budrich.de/wp-content/uploads/2022/01/1869-3016-2018-2.pdf
 - Trimçev, Rieke: [Verbindlichkeitskonflikte und politische Verpflichtung](https://www.ssoar.info/ssoar/bitstream/handle/document/66276/ssoar-zpth-2018-2-trimcev-Verbindlichkeitskonflikte_und_politische_Verpflichtung.pdf?sequence=2&isAllowed=y&lnkname=ssoar-zpth-2018-2-trimcev-Verbindlichkeitskonflikte_und_politische_Verpflichtung.pdf)
+
 ### **Judith Shklar im Netz (Auswahl)**: 
 -	Die politische Philosophie der Judith N. Shklar - Liberalismus ohne Illusionen: https://www.br.de/mediathek/podcast/radiowissen/die-politische-philosophie-der-judith-n-shklar-liberalismus-ohne-illusionen/1853684
+
 -	Judith N. Shklar: „Über Hannah Arendt“. Kritik unter Geistesgrößen: https://www.deutschlandfunkkultur.de/judith-n-shklar-ueber-hannah-arendt-kritik-unter-100.html
 - Buchkritik von H. Bajohr: https://www.deutschlandfunkkultur.de/buchkritik-ad-judith-n-shklar-von-hannes-bajohr-rieke-trimcev-dlf-kultur-6782831d-100.html
 
 
 ### **Podcastsendungen (Auswahl)**: 
 -	Podcast Filosofie: Judith Shklar https://podcasts.apple.com/de/podcast/judith-shklar/id1451841760?i=1000646349383
+
 -	Required Reading from: Liberalism of Fear by Judith Shklar: https://podcasts.apple.com/de/podcast/liberalism-of-fear-by-judith-shklar/id1786599014?i=1000681133134 
+
 -	SWR. Das Wissen: Die Politologin Judith Shklar: https://podcasts.apple.com/de/podcast/die-politologin-judith-nisse-shklar-wie-demokratien/id104913043?i=1000501341831 
+
 -	Talking Politics: Shklar on Hypocrisy: https://podcasts.apple.com/de/podcast/shklar-on-hypocrisy/id1508992867?i=1000517869772
 

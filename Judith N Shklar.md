@@ -72,7 +72,7 @@ Beachten Sie die Handreichung zum wissenschaftlichen Arbeiten im Fach Philosophi
 **Name:** Judith Nisse Shklar  
 
 **Geboren:** 24. September 1928 in Riga, Lettland 
- 
+
 **Gestorben:** 17. September 1992 in Cambridge, Massachusetts, USA  
 
 **Beruf:** Politikwissenschaftlerin und politische Theoretikerin  
@@ -85,7 +85,7 @@ Geboren in eine deutschsprachige jüdische Familie, floh sie 1939 mit ihrer Fami
 - **Bildung:** 
 Studium der Politikwissenschaft an der McGill University in Montreal; Promotion an der Harvard University (1955). 
 
-- **Karriere**
+- **Karriere:**
 Erste Fraz auf einer Festanstellung im Fachbereich Politische Wissenschaften an der Harvward University. Sie lehrte dort bis zu ihrem Tod und wurde 1980 zur "John Cowles Professor of Goverment" ernannt.
 
 
@@ -111,7 +111,7 @@ Erste Fraz auf einer Festanstellung im Fachbereich Politische Wissenschaften an 
 
 4. **Moralische Urteilskraft**:
 
-   - Shklar betont die Bedeutung individueller Urteilskraft in einer Welt ohne absolute Sicherheiten oder universelle Regeln.
+   * Shklar betont die Bedeutung individueller Urteilskraft in einer Welt ohne absolute Sicherheiten oder universelle Regeln.
 ---
 ## **Wichtige Werke**:
 - *After Utopia: The Decline of Political Faith* (1957)  

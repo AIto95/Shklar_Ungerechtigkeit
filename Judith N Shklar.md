@@ -77,7 +77,8 @@ Beachten Sie die Handreichung zum wissenschaftlichen Arbeiten im Fach Philosophi
 
 **Beruf:** Politikwissenschaftlerin und politische Theoretikerin  
 
-**Judith Shklar gilt als eine der bedeutendsten liberalen Theoretikerinnen des 20. Jahrhunderts. Ihre Arbeiten haben bis heute Einfluss auf Debatten über politische Ethik, Machtbegrenzung und die Rolle von Freiheit in einer liberalen Gesellschaft.**
+
+Judith Shklar gilt als eine der bedeutendsten liberalen Theoretikerinnen des 20. Jahrhunderts. Ihre Arbeiten haben bis heute Einfluss auf Debatten über politische Ethik, Machtbegrenzung und die Rolle von Freiheit in einer liberalen Gesellschaft.
 
 
 ## **Leben**:
@@ -158,7 +159,27 @@ Diese Werke prägen bis heute Debatten über Liberalismus, Gerechtigkeit und pol
 -	[Die politische Philosophie der Judith N. Shklar - Liberalismus ohne Illusionen](https://www.br.de/mediathek/podcast/radiowissen/die-politische-philosophie-der-judith-n-shklar-liberalismus-ohne-illusionen/1853684)
 
 -	[Judith N. Shklar: „Über Hannah Arendt“. Kritik unter Geistesgrößen](https://www.deutschlandfunkkultur.de/judith-n-shklar-ueber-hannah-arendt-kritik-unter-100.html)
+
 - [Buchkritik von H. Bajohr](https://www.deutschlandfunkkultur.de/buchkritik-ad-judith-n-shklar-von-hannes-bajohr-rieke-trimcev-dlf-kultur-6782831d-100.html)
+
+- [Literaturkritik: Nora Ecker - Wir schauen zu gerne weg](https://literaturkritik.de/shklar-ueber-ungerechtigkeit,28533.html)
+
+- [MacArthur Foundation: Judith N. Shklar](https://www.macfound.org/fellows/class-of-march-1984/judith-n-shklar)
+
+- [Seyla Benhabib:Judith Nisse Shklar](https://bpb-us-w2.wpmucdn.com/campuspress.yale.edu/dist/3/949/files/2016/05/Judith-Nisse-Shklar-1928-1992-Proceedings-of-the-APA-1vyo0j1.pdf)
+
+- [Bunk:Judith N. Shklar](https://www.bunkhistory.org/tags/persons/judith-n-shklar)
+
+- [Alexander Cammann(Zeit Online): Judith Shklar. Triumph einer Außenseiterin](https://www.zeit.de/2017/27/judith-nisse-shklar-philosophin-liberalismus-sammelband)
+
+- [Katharina Kaufmann (Theorieblog): Dialog zwischen einer Exilantin und einem Staatsbürger – Lesenotiz zu Judith Shklar über „Verpflichtung, Loyalität, Exil“](https://www.theorieblog.de/index.php/2019/12/dialog-zwischen-einer-exilantin-und-einem-staatsbuerger-lesenotiz-zu-judith-shklar-ueber-verpflichtung-loyalitaet-exil/)
+
+- [Dr. Sandra von Siebenthal:Judith Shklar: Liberalismus der Furcht (Rezension)](https://denkzeiten.com/2023/06/26/judith-shklar-liberalismus-der-furcht/)
+
+- [Wikipedia: Judith Shklar](https://de.wikipedia.org/wiki/Judith_N._Shklar)
+
+- [Michael Knoll (intellectures): Liberalismus und Demokratie führen eine Zweckehe](https://www.intellectures.de/2021/03/29/liberalismus-und-demokratie-fuehren-eine-zweckehe/)
+
 
 **Podcastsendungen (Auswahl)**: 
 

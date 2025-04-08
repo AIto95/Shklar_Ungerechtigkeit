@@ -77,8 +77,7 @@ Beachten Sie die Handreichung zum wissenschaftlichen Arbeiten im Fach Philosophi
 
 **Beruf:** Politikwissenschaftlerin und politische Theoretikerin  
 
- **Bedeutung**:
-Judith Shklar gilt als eine der bedeutendsten liberalen Theoretikerinnen des 20. Jahrhunderts. Ihre Arbeiten haben bis heute Einfluss auf Debatten über politische Ethik, Machtbegrenzung und die Rolle von Freiheit in einer liberalen Gesellschaft.
+**Judith Shklar gilt als eine der bedeutendsten liberalen Theoretikerinnen des 20. Jahrhunderts. Ihre Arbeiten haben bis heute Einfluss auf Debatten über politische Ethik, Machtbegrenzung und die Rolle von Freiheit in einer liberalen Gesellschaft.**
 
 
 ## **Leben**:
@@ -113,7 +112,7 @@ Erste Fraz auf einer Festanstellung im Fachbereich Politische Wissenschaften an 
 
    In ihrem Werk *After Utopia* (1957) kritisiert sie politische Ideologien, die sich auf utopische Zukunftsvisionen stützen, da diese oft die Gegenwart ignorieren.
 
-**Moralische Urteilskraft**:
+**Moralische Urteilskraft**
 
 Shklar betont die Bedeutung individueller Urteilskraft in einer Welt ohne absolute Sicherheiten oder universelle Regeln.
 

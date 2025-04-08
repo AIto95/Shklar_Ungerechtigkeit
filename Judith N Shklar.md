@@ -116,7 +116,6 @@ Erste Fraz auf einer Festanstellung im Fachbereich Politische Wissenschaften an 
 **Moralische Urteilskraft**:
 
 Shklar betont die Bedeutung individueller Urteilskraft in einer Welt ohne absolute Sicherheiten oder universelle Regeln.
----
 
 ## **Wichtige Werke**:
 
@@ -147,7 +146,6 @@ Ihre kritischen Texte über Hannah Arendt beleuchten Unterschiede in den Denkans
 Diese Werke prägen bis heute Debatten über Liberalismus, Gerechtigkeit und politische Ethik und machen Judith Shklar zu einer der bedeutendsten Denkerinnen des 20. Jahrhunderts.
 
 ## **Zum Nachforschen**
-
 **Sonstige Literatur (Auswahl)**: 
 
 -	Hannes Bajohr und Rieke Trimçev: [Judith N. Shklar. Leben – Werk – Gegenwart](https://www.beck-shop.de/bajohr-trimev-ad-judith-n-shklar/product/33569982?srsltid=AfmBOooBwTjI0ZacYJTX_RDvWK6Ett0u1E_N57BvUAvT7yYH9MHVY1wX)

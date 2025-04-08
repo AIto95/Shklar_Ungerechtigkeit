@@ -87,6 +87,7 @@ Studium der Politikwissenschaft an der McGill University in Montreal; Promotion 
 
 - **Karriere:** 
 Erste Frau auf einer Festanstellung im Fachbereich Politische Wissenschaften an der Harvard University. Sie lehrte dort bis zu ihrem Tod und wurde 1980 zur „John Cowles Professor of Government“ ernannt.
+
 ---
 ## **Philosophisches Denken**:
 

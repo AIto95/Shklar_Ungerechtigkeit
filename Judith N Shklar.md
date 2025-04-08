@@ -77,6 +77,10 @@ Beachten Sie die Handreichung zum wissenschaftlichen Arbeiten im Fach Philosophi
 
 **Beruf:** Politikwissenschaftlerin und politische Theoretikerin  
 
+ **Bedeutung**:
+Judith Shklar gilt als eine der bedeutendsten liberalen Theoretikerinnen des 20. Jahrhunderts. Ihre Arbeiten haben bis heute Einfluss auf Debatten über politische Ethik, Machtbegrenzung und die Rolle von Freiheit in einer liberalen Gesellschaft.
+
+
 ## **Leben**:
 
 - **Herkunft und Flucht:** 
@@ -145,12 +149,15 @@ Diese Werke prägen bis heute Debatten über Liberalismus, Gerechtigkeit und pol
 ### **Zum Nachforschen**
 
 # **Sonstige Literatur (Auswahl)**: 
+
 -	Hannes Bajohr und Rieke Trimçev: [Judith N. Shklar. Leben – Werk – Gegenwart](https://www.beck-shop.de/bajohr-trimev-ad-judith-n-shklar/product/33569982?srsltid=AfmBOooBwTjI0ZacYJTX_RDvWK6Ett0u1E_N57BvUAvT7yYH9MHVY1wX)
--	Zeitschrift für Theoretische Philosophie:
-[Themenheft zur Shklars politischer Philosophie](hhttps://shop.budrich.de/wp-content/uploads/2022/01/1869-3016-2018-2.pdf)
+
+-	Zeitschrift für Theoretische Philosophie:[Themenheft zur Shklars politischer Philosophie](hhttps://shop.budrich.de/wp-content/uploads/2022/01/1869-3016-2018-2.pdf)
+
 - Trimçev, Rieke: [Verbindlichkeitskonflikte und politische Verpflichtung](https://www.ssoar.info/ssoar/bitstream/handle/document/66276/ssoar-zpth-2018-2-trimcev-Verbindlichkeitskonflikte_und_politische_Verpflichtung.pdf?sequence=2&isAllowed=y&lnkname=ssoar-zpth-2018-2-trimcev-Verbindlichkeitskonflikte_und_politische_Verpflichtung.pdf)
 
 # **Judith Shklar im Netz (Auswahl)**: 
+
 -	[Die politische Philosophie der Judith N. Shklar - Liberalismus ohne Illusionen](https://www.br.de/mediathek/podcast/radiowissen/die-politische-philosophie-der-judith-n-shklar-liberalismus-ohne-illusionen/1853684)
 
 -	[Judith N. Shklar: „Über Hannah Arendt“. Kritik unter Geistesgrößen](https://www.deutschlandfunkkultur.de/judith-n-shklar-ueber-hannah-arendt-kritik-unter-100.html)

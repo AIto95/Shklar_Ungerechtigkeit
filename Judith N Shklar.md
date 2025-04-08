@@ -91,7 +91,7 @@ Erste Fraz auf einer Festanstellung im Fachbereich Politische Wissenschaften an 
 
 ### **Philosophisches Denken**:
 
- **"Liberalismus der Furcht"**:
+ **Liberalismus der Furcht**:
 
    - Ihr bekanntestes Konzept, das sie in ihrem Essay *The Liberalism of Fear* (1989) darlegte.
 
@@ -101,17 +101,17 @@ Erste Fraz auf einer Festanstellung im Fachbereich Politische Wissenschaften an 
 
  **Fokus auf Ungerechtigkeit**:
 
-   - In *Über Ungerechtigkeit* (1990) kritisiert sie, dass Philosophen oft nur Gerechtigkeit analysieren und das Thema Ungerechtigkeit vernachlässigen.
+   In *Über Ungerechtigkeit* (1990) kritisiert sie, dass Philosophen oft nur Gerechtigkeit analysieren und das Thema Ungerechtigkeit vernachlässigen.
 
-   - Sie betont die Bedeutung von Ungerechtigkeit als eigenständiges philosophisches Problem.
+   Sie betont die Bedeutung von Ungerechtigkeit als eigenständiges philosophisches Problem.
 
  **Ablehnung von Utopien**:
 
-   - In ihrem Werk *After Utopia* (1957) kritisiert sie politische Ideologien, die sich auf utopische Zukunftsvisionen stützen, da diese oft die Gegenwart ignorieren.
+   In ihrem Werk *After Utopia* (1957) kritisiert sie politische Ideologien, die sich auf utopische Zukunftsvisionen stützen, da diese oft die Gegenwart ignorieren.
 
 4. **Moralische Urteilskraft**:
 
-   * Shklar betont die Bedeutung individueller Urteilskraft in einer Welt ohne absolute Sicherheiten oder universelle Regeln.
+  Shklar betont die Bedeutung individueller Urteilskraft in einer Welt ohne absolute Sicherheiten oder universelle Regeln.
 ---
 ## **Wichtige Werke**:
 - *After Utopia: The Decline of Political Faith* (1957)  
@@ -121,20 +121,25 @@ Erste Fraz auf einer Festanstellung im Fachbereich Politische Wissenschaften an 
 - *Faces of Injustice* (*Über Ungerechtigkeit*, 1990)
 
 Judith Shklar hat mehrere einflussreiche Werke verfasst, die ihre zentrale Rolle in der politischen Theorie und Liberalismus-Debatte unterstreichen. Zu den wichtigsten zählen:
+
 **Der Liberalismus der Furcht (1989)**
-- Dieses Werk ist ihr bekanntestes und prägendstes. Es formuliert eine liberale Theorie, die darauf abzielt, Grausamkeit und Machtmissbrauch zu verhindern. Shklar argumentiert, dass der Liberalismus vor allem die Freiheit sichern sollte, ohne Furcht Entscheidungen treffen zu können. Sie befürwortet eine konstitutionelle Demokratie, die Macht begrenzt und verteilt.
+Dieses Werk ist ihr bekanntestes und prägendstes. Es formuliert eine liberale Theorie, die darauf abzielt, Grausamkeit und Machtmissbrauch zu verhindern. Shklar argumentiert, dass der Liberalismus vor allem die Freiheit sichern sollte, ohne Furcht Entscheidungen treffen zu können. Sie befürwortet eine konstitutionelle Demokratie, die Macht begrenzt und verteilt.
 
 **Ganz normale Laster (1984)**
-- In diesem Buch untersucht Shklar alltägliche moralische Schwächen wie Grausamkeit, Heuchelei und Feigheit. Sie stellt Grausamkeit als das größte Übel (*summum malum*) dar und verbindet dies mit ihrer liberalen Theorie. Das Werk bietet eine tiefgehende Reflexion über die moralischen Grundlagen des politischen Handelns.
+
+In diesem Buch untersucht Shklar alltägliche moralische Schwächen wie Grausamkeit, Heuchelei und Feigheit. Sie stellt Grausamkeit als das größte Übel (*summum malum*) dar und verbindet dies mit ihrer liberalen Theorie. Das Werk bietet eine tiefgehende Reflexion über die moralischen Grundlagen des politischen Handelns.
 
 **Über Ungerechtigkeit (1990)**
-- In diesem Werk kritisiert Shklar die philosophische Vernachlässigung des Konzepts der Ungerechtigkeit zugunsten von Gerechtigkeitstheorien. Sie analysiert verschiedene Formen von Ungerechtigkeit (z. B. passive und aktive Ungerechtigkeit) und betont deren zentrale Bedeutung für politische und soziale Theorie.
+
+In diesem Werk kritisiert Shklar die philosophische Vernachlässigung des Konzepts der Ungerechtigkeit zugunsten von Gerechtigkeitstheorien. Sie analysiert verschiedene Formen von Ungerechtigkeit (z. B. passive und aktive Ungerechtigkeit) und betont deren zentrale Bedeutung für politische und soziale Theorie.
 
 **After Utopia: The Decline of Political Faith (1957)**
-- Dieses frühe Werk kritisiert utopisches Denken in der politischen Theorie und plädiert für eine realistische Betrachtung politischer Möglichkeiten. Es zeigt Shklars Skepsis gegenüber Ideologien, die auf idealisierten Zukunftsvisionen basieren.
+
+Dieses frühe Werk kritisiert utopisches Denken in der politischen Theorie und plädiert für eine realistische Betrachtung politischer Möglichkeiten. Es zeigt Shklars Skepsis gegenüber Ideologien, die auf idealisierten Zukunftsvisionen basieren.
 
 **Essays über Hannah Arendt**
-- Ihre kritischen Texte über Hannah Arendt beleuchten Unterschiede in den Denkansätzen der beiden Philosophinnen, insbesondere in Bezug auf Exil, Freiheit und politische Romantik. Diese Essays sind besonders relevant für das Verständnis von Shklars Position im Vergleich zu anderen großen politischen Theoretikern[2].
+
+Ihre kritischen Texte über Hannah Arendt beleuchten Unterschiede in den Denkansätzen der beiden Philosophinnen, insbesondere in Bezug auf Exil, Freiheit und politische Romantik. Diese Essays sind besonders relevant für das Verständnis von Shklars Position im Vergleich zu anderen großen politischen Theoretikern[2].
 Diese Werke prägen bis heute Debatten über Liberalismus, Gerechtigkeit und politische Ethik und machen Judith Shklar zu einer der bedeutendsten Denkerinnen des 20. Jahrhunderts.
 
 ---
@@ -143,23 +148,25 @@ Judith Shklar gilt als eine der bedeutendsten liberalen Theoretikerinnen des 20.
 
 
 ### **Sonstige Literatur (Auswahl)**: 
--	Hannes Bajohr und Rieke Trimçev: Judith N. Shklar. Leben – Werk – Gegenwart
--	Themenheft zur Shklars politischer Philosophie: https://shop.budrich.de/wp-content/uploads/2022/01/1869-3016-2018-2.pdf
+-	Hannes Bajohr und Rieke Trimçev: [Judith N. Shklar. Leben – Werk – Gegenwart](https://www.beck-shop.de/bajohr-trimev-ad-judith-n-shklar/product/33569982?srsltid=AfmBOooBwTjI0ZacYJTX_RDvWK6Ett0u1E_N57BvUAvT7yYH9MHVY1wX)
+-	Zeitschrift für Theoretische Philosophie:
+[Themenheft zur Shklars politischer Philosophie](hhttps://shop.budrich.de/wp-content/uploads/2022/01/1869-3016-2018-2.pdf)
 - Trimçev, Rieke: [Verbindlichkeitskonflikte und politische Verpflichtung](https://www.ssoar.info/ssoar/bitstream/handle/document/66276/ssoar-zpth-2018-2-trimcev-Verbindlichkeitskonflikte_und_politische_Verpflichtung.pdf?sequence=2&isAllowed=y&lnkname=ssoar-zpth-2018-2-trimcev-Verbindlichkeitskonflikte_und_politische_Verpflichtung.pdf)
 
 ### **Judith Shklar im Netz (Auswahl)**: 
--	Die politische Philosophie der Judith N. Shklar - Liberalismus ohne Illusionen: https://www.br.de/mediathek/podcast/radiowissen/die-politische-philosophie-der-judith-n-shklar-liberalismus-ohne-illusionen/1853684
+-	[Die politische Philosophie der Judith N. Shklar - Liberalismus ohne Illusionen](https://www.br.de/mediathek/podcast/radiowissen/die-politische-philosophie-der-judith-n-shklar-liberalismus-ohne-illusionen/1853684)
 
--	Judith N. Shklar: „Über Hannah Arendt“. Kritik unter Geistesgrößen: https://www.deutschlandfunkkultur.de/judith-n-shklar-ueber-hannah-arendt-kritik-unter-100.html
-- Buchkritik von H. Bajohr: https://www.deutschlandfunkkultur.de/buchkritik-ad-judith-n-shklar-von-hannes-bajohr-rieke-trimcev-dlf-kultur-6782831d-100.html
+-	[Judith N. Shklar: „Über Hannah Arendt“. Kritik unter Geistesgrößen](https://www.deutschlandfunkkultur.de/judith-n-shklar-ueber-hannah-arendt-kritik-unter-100.html)
+- [Buchkritik von H. Bajohr](https://www.deutschlandfunkkultur.de/buchkritik-ad-judith-n-shklar-von-hannes-bajohr-rieke-trimcev-dlf-kultur-6782831d-100.html)
 
 
 ### **Podcastsendungen (Auswahl)**: 
--	Podcast Filosofie: Judith Shklar https://podcasts.apple.com/de/podcast/judith-shklar/id1451841760?i=1000646349383
 
--	Required Reading from: Liberalism of Fear by Judith Shklar: https://podcasts.apple.com/de/podcast/liberalism-of-fear-by-judith-shklar/id1786599014?i=1000681133134 
+-	[Podcast Filosofie: Judith Shklar](https://podcasts.apple.com/de/podcast/judith-shklar/id1451841760?i=1000646349383)
 
--	SWR. Das Wissen: Die Politologin Judith Shklar: https://podcasts.apple.com/de/podcast/die-politologin-judith-nisse-shklar-wie-demokratien/id104913043?i=1000501341831 
+-	[Required Reading from: Liberalism of Fear by Judith Shklar](https://podcasts.apple.com/de/podcast/liberalism-of-fear-by-judith-shklar/id1786599014?i=1000681133134)
 
--	Talking Politics: Shklar on Hypocrisy: https://podcasts.apple.com/de/podcast/shklar-on-hypocrisy/id1508992867?i=1000517869772
+-	[SWR. Das Wissen: Die Politologin Judith Shklar](https://podcasts.apple.com/de/podcast/die-politologin-judith-nisse-shklar-wie-demokratien/id104913043?i=1000501341831)
+
+-	[Talking Politics: Shklar on Hypocrisy](https://podcasts.apple.com/de/podcast/shklar-on-hypocrisy/id1508992867?i=1000517869772)
 

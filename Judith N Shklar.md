@@ -123,9 +123,7 @@ Judith Shklar gilt als eine der bedeutendsten liberalen Theoretikerinnen des 20.
 ### **Sonstige Literatur (Auswahl)**: 
 -	Hannes Bajohr und Rieke Trimçev: Judith N. Shklar. Leben – Werk – Gegenwart
 -	Themenheft zur Shklars politischer Philosophie: https://shop.budrich.de/wp-content/uploads/2022/01/1869-3016-2018-2.pdf
--	
-
-
+- Trimçev, Rieke: [Verbindlichkeitskonflikte und politische Verpflichtung]([https://www.ssoar.info/ssoar/bitstream/handle/document/66276/ssoar-zpth-2018-2-trimcev-Verbindlichkeitskonflikte_und_politische_Verpflichtung.pdf?sequence=2&isAllowed=y&lnkname=ssoar-zpth-2018-2-trimcev-Verbindlichkeitskonflikte_und_politische_Verpflichtung.pdf])
 ### **Judith Shklar im Netz (Auswahl)**: 
 -	Die politische Philosophie der Judith N. Shklar - Liberalismus ohne Illusionen: https://www.br.de/mediathek/podcast/radiowissen/die-politische-philosophie-der-judith-n-shklar-liberalismus-ohne-illusionen/1853684
 -	Judith N. Shklar: „Über Hannah Arendt“. Kritik unter Geistesgrößen: https://www.deutschlandfunkkultur.de/judith-n-shklar-ueber-hannah-arendt-kritik-unter-100.html

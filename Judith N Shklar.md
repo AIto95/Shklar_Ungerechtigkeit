@@ -89,32 +89,10 @@ Geboren in eine deutschsprachige jüdische Familie, floh sie 1939 mit ihrer Fami
 Studium der Politikwissenschaft an der McGill University in Montreal; Promotion an der Harvard University (1955). 
 
 - **Karriere:**
-Erste Fraz auf einer Festanstellung im Fachbereich Politische Wissenschaften an der Harvward University. Sie lehrte dort bis zu ihrem Tod und wurde 1980 zur "John Cowles Professor of Goverment" ernannt.
+Erste Frau auf einer Festanstellung im Fachbereich Politische Wissenschaften an der Harvward University. Sie lehrte dort bis zu ihrem Tod und wurde 1980 zur "John Cowles Professor of Goverment" ernannt.
 
 
 ### **Philosophisches Denken**:
-
- **Liberalismus der Furcht**:
-
-   - Ihr bekanntestes Konzept, das sie in ihrem Essay *The Liberalism of Fear* (1989) darlegte.
-
-   - Zentraler Gedanke: Der Liberalismus soll vor allem Grausamkeit und Machtmissbrauch verhindern. Freiheit bedeutet für sie, ohne Furcht Entscheidungen treffen zu können.
-
-   - Sie plädiert für eine liberale Demokratie, die Macht begrenzt und verteilt.
-
- **Fokus auf Ungerechtigkeit**:
-
-   In *Über Ungerechtigkeit* (1990) kritisiert sie, dass Philosophen oft nur Gerechtigkeit analysieren und das Thema Ungerechtigkeit vernachlässigen.
-
-   Sie betont die Bedeutung von Ungerechtigkeit als eigenständiges philosophisches Problem.
-
- **Ablehnung von Utopien**:
-
-   In ihrem Werk *After Utopia* (1957) kritisiert sie politische Ideologien, die sich auf utopische Zukunftsvisionen stützen, da diese oft die Gegenwart ignorieren.
-
-**Moralische Urteilskraft**
-
-Shklar betont die Bedeutung individueller Urteilskraft in einer Welt ohne absolute Sicherheiten oder universelle Regeln.
 
 ## **Wichtige Werke**:
 

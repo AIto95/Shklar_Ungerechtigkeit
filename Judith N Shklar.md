@@ -64,7 +64,7 @@ Beachten Sie die Handreichung zum wissenschaftlichen Arbeiten im Fach Philosophi
 * Beginn: 25.08.2025
 * Ende: 21.09.2025
 
-## 1. Sitzung am 15.04.2025
+## 1. Sitzung am 22.04.2025
 
 ![Judith Shklar](judith-shklar.jpg)
 

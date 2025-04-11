@@ -127,11 +127,9 @@ Diese Werke prägen bis heute Debatten über Liberalismus, Gerechtigkeit und pol
 
 -	Hannes Bajohr und Rieke Trimçev: [Judith N. Shklar. Leben – Werk – Gegenwart](https://www.beck-shop.de/bajohr-trimev-ad-judith-n-shklar/product/33569982?srsltid=AfmBOooBwTjI0ZacYJTX_RDvWK6Ett0u1E_N57BvUAvT7yYH9MHVY1wX)
 
-- - Seyla Benhabib: Judith Shklar's Dystopic Liberalism, *Social Research*, Vol. 61, No. 2 (SUMMER 1994), pp. 477-488.
+- Seyla Benhabib: Judith Shklar's Dystopic Liberalism, *Social Research*, Vol. 61, No. 2 (SUMMER 1994), pp. 477-488.
 
 - Stanley Hoffmann: Judith Shklar as Political Thinker, *Political Theory*, Vol. 21, No. 2 (May, 1993), pp. 172-180.
-
-- 
 
 -	Zeitschrift für Theoretische Philosophie:[Themenheft zur Shklars politischer Philosophie](hhttps://shop.budrich.de/wp-content/uploads/2022/01/1869-3016-2018-2.pdf)
 
@@ -140,8 +138,6 @@ Diese Werke prägen bis heute Debatten über Liberalismus, Gerechtigkeit und pol
 - Eleanor Pickford: [Judith Shklar on the problem of political motivation](https://www.repository.cam.ac.uk/items/cbfac99e-182f-435e-b46e-b25755c0c65f) 
 
 - Allyn Fives: [The unnoticed monism of Judith Shklar’s liberalism of fear](https://journals.sagepub.com/doi/full/10.1177/0191453719849717)
-
-
 
 
 **Judith Shklar im Netz (Auswahl)**: 

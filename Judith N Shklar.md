@@ -30,13 +30,12 @@ Judith N. Shklar (1928-1992) war eine bedeutende Theoretikerin des politischen L
 * PHF-phil-WP (Philosophische Reflexion und ethische Urteilskraft)
 
 
-Beachten Sie die Handreichung zum wissenschaftlichen Arbeiten im Fach Philosophie. Jedes Referat, jede Hausarbeit und jeder Essay sind im Vorfeld in der Sprechstunde abzustimmen. Der Abgabetermin für die schriftlichen Prüfungsleistungen ist der ???? . Die Abgabe erfolgt als Ausdruck, mit Deckblatt und unterschriebener Eigenständigkeitserklärung an der Hauptpforte oder im Briefkasten für Prüfungsleistungen in der LS4. Keine Abgabe per Email!
+Beachten Sie die Handreichung zum wissenschaftlichen Arbeiten im Fach Philosophie. Jedes Referat, jede Hausarbeit und jeder Essay sind im Vorfeld in der Sprechstunde abzustimmen. Der Abgabetermin für die schriftlichen Prüfungsleistungen ist der 30.09.2025 . Die Abgabe erfolgt als Ausdruck, mit Deckblatt und unterschriebener Eigenständigkeitserklärung an der Hauptpforte oder im Briefkasten für Prüfungsleistungen in der LS4. Keine Abgabe per Email!
 
 ## Semesterplan
 
-| **15.04.2025** | **Eröffnung, Organisatorisches** | **Referat** |
+| **22.04.2025** | **Eröffnung, Organisatorisches** | **Referat** |
 |------------|------------------------------|---------|
-| 22.04.2025 | ---- |---  |
 | 29.04.2025 | ---| -- |
 | 06.05.2025 |  ---| -- |
 | 13.05.2025 | ---| -- |

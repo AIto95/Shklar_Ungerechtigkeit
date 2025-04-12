@@ -132,15 +132,13 @@ Diese Werke prägen bis heute Debatten über Liberalismus, Gerechtigkeit und pol
 
 -	Bajohr, Hannes und Trimçev, Rieke: [Judith N. Shklar. Leben – Werk – Gegenwart](https://www.beck-shop.de/bajohr-trimev-ad-judith-n-shklar/product/33569982?srsltid=AfmBOooBwTjI0ZacYJTX_RDvWK6Ett0u1E_N57BvUAvT7yYH9MHVY1wX).
 
-- Bajohr, Hannes, „Harmonie und Widerspruch. Mit Judith N. Shklar gegen die ‚Ideologie der Einigkeit*", Hendrikje Schauer und Marcel Lepper (Hg.), Distanzierung und Engagement. Wie politisch sind die Geisteswissenschaften? (Stuttgart: Works & Nights
-2018), S.75-85.
+- Bajohr, Hannes, „Harmonie und Widerspruch. Mit Judith N. Shklar gegen die ‚Ideologie der Einigkeit*", Hendrikje Schauer und Marcel Lepper (Hg.), Distanzierung und Engagement. Wie politisch sind die Geisteswissenschaften? (Stuttgart: Works & Nights 2018), S.75-85.
 
 - Bajohr, Hannes, „Judith N. Shklar über die Quellen liberaler Normativität", , in: Karsten Fischer und Sebastian Huhnholz (Hg.), Liberalismus. Traditions-bestände und Gegenwartskontroversen (Baden-Baden: Nomos 2019), S.71-98.
 
 - Bajohr, Hannes, „Strategies of Authority: The Distorting Think-Piece and the Case of Judith Shklar", in: [Journal of the History of Ideas](https://www.jhiblog.org/2020/07/08/strategies-of-authority-the-distorting-think-piece-and-the-case-of-judith-shklar/) (Blog), 2020.
 
-- Benhabib, Seyla: Judith Shklar's Dystopic Liberalism, *Social Research*, Vol. 61, No. 2 (SUMMER 1994), pp. 477-488.  || Oder auf deutsch: Benhabib, Seyla, „Judith Shklars dystopischer Liberalismus", , in: Judith N. Shklar, Der Liberalismus der Furcht, hg. und übers. Hannes Bajohr (Berlin: Matthes & Seitz
-2013), S.67-86.
+- Benhabib, Seyla: Judith Shklar's Dystopic Liberalism, *Social Research*, Vol. 61, No. 2 (SUMMER 1994), pp. 477-488.  || Oder auf deutsch: Benhabib, Seyla, „Judith Shklars dystopischer Liberalismus", , in: Judith N. Shklar, Der Liberalismus der Furcht, hg. und übers. Hannes Bajohr (Berlin: Matthes & Seitz 2013), S.67-86.
 
 - Betsky, Celia B., [„Judith Shklar. The Metics' Metic"](https://www.thecrimson.com/article/1972/3/31 judith-shklar-the-metics-metic-pbcbommenting/), The Harvard Crimson, 31. März 1972.
 

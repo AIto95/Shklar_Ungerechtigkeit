@@ -92,9 +92,9 @@ Studium der Politikwissenschaft an der McGill University in Montreal; Promotion 
 Erste Frau auf einer Festanstellung im Fachbereich Politische Wissenschaften an der Harvward University. Sie lehrte dort bis zu ihrem Tod und wurde 1980 zur "John Cowles Professor of Goverment" ernannt.
 
 
-## **Philosophisches Denken**:
+# **Philosophisches Denken**:
 
-# **Wichtige Werke**:
+ # **Wichtige Werke**:
 
 - *After Utopia: The Decline of Political Faith* (1957)  
 - *Ordinary Vices* (*Ganz normale Laster*, 1984)  

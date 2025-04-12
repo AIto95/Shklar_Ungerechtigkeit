@@ -122,14 +122,88 @@ Dieses frühe Werk kritisiert utopisches Denken in der politischen Theorie und p
 Ihre kritischen Texte über Hannah Arendt beleuchten Unterschiede in den Denkansätzen der beiden Philosophinnen, insbesondere in Bezug auf Exil, Freiheit und politische Romantik. Diese Essays sind besonders relevant für das Verständnis von Shklars Position im Vergleich zu anderen großen politischen Theoretikern[2].
 Diese Werke prägen bis heute Debatten über Liberalismus, Gerechtigkeit und politische Ethik und machen Judith Shklar zu einer der bedeutendsten Denkerinnen des 20. Jahrhunderts.
 
-## **Zum Nachforschen**
-**Sonstige Literatur (Auswahl)**: 
+# **Zum Nachforschen**
 
--	Hannes Bajohr und Rieke Trimçev: [Judith N. Shklar. Leben – Werk – Gegenwart](https://www.beck-shop.de/bajohr-trimev-ad-judith-n-shklar/product/33569982?srsltid=AfmBOooBwTjI0ZacYJTX_RDvWK6Ett0u1E_N57BvUAvT7yYH9MHVY1wX)
+**Ausgewählte Sekundärliteratur** 
 
-- Seyla Benhabib: Judith Shklar's Dystopic Liberalism, *Social Research*, Vol. 61, No. 2 (SUMMER 1994), pp. 477-488.
+- Abbey, Ruth, „Putting Cruelty First: Exploring Judith Shklar's Liberalism of Fear for Animal Ethics", in:
+Politics and Animals 2, Nr. 1 (2016), S. 25-36.
 
-- Stanley Hoffmann: Judith Shklar as Political Thinker, *Political Theory*, Vol. 21, No. 2 (May, 1993), pp. 172-180.
+- Allen, Jonathan: The Place of Negative Morality in Political Theory, in: Political Theory 29(2001)3, S. 337-363.
+
+-	Bajohr, Hannes und Trimçev, Rieke: [Judith N. Shklar. Leben – Werk – Gegenwart](https://www.beck-shop.de/bajohr-trimev-ad-judith-n-shklar/product/33569982?srsltid=AfmBOooBwTjI0ZacYJTX_RDvWK6Ett0u1E_N57BvUAvT7yYH9MHVY1wX).
+
+- Bajohr, Hannes, „Harmonie und Widerspruch. Mit Judith N. Shklar gegen die ‚Ideologie der Einigkeit*", Hendrikje Schauer und Marcel Lepper (Hg.), Distanzierung und Engagement. Wie politisch sind die Geisteswissenschaften? (Stuttgart: Works & Nights
+2018), S.75-85.
+
+- Bajohr, Hannes, „Judith N. Shklar über die Quellen liberaler Normativität", , in: Karsten Fischer und
+Sebastian Huhnholz (Hg.), Liberalismus. Traditions-bestände und Gegenwartskontroversen (Baden-Baden:
+Nomos 2019), S.71-98.
+
+- Bajohr, Hannes, „Strategies of Authority: The Distorting Think-Piece and the Case of Judith Shklar", in: [Journal of the History of Ideas](https://www.jhiblog.org/2020/07/08/strategies-of-authority-the-distorting-think-piece-and-the-case-of-judith-shklar/) (Blog), 2020.
+
+- Benhabib, Seyla: Judith Shklar's Dystopic Liberalism, *Social Research*, Vol. 61, No. 2 (SUMMER 1994), pp. 477-488.
+oder auf deutsch: Benhabib, Seyla, „Judith Shklars dystopischer Liberalismus", , in: Judith N. Shklar, Der Liberalismus der Furcht, hg. und übers. Hannes Bajohr (Berlin: Matthes & Seitz
+2013), S.67-86.
+
+- Betsky, Celia B., [„Judith Shklar. The Metics' Metic"](https://www.thecrimson.com/article/1972/3/31/judith-shklar-the-metics-metic-pbcbommenting/), The Harvard Crimson, 31. März 1972.
+
+- Blättler, Sidonia: Judith Shklar. Aufklarung ohne Glücks-versprechen, in: Polis 53(2011), S. 14-30.
+
+- Davis, Natalie Z., Brief an Judith N. Shklar, 3. Dezember 1982, Papers of Judith N. Shklar, Series: Correspon-dence, 1959-1992, HUGFP 118, Box2.
+
+- Douglass, Robin, ,Cruelty, Injustice, and the Liberalism of Fear", in: Political Theory 51, Nr. 5 (2023), S. 790-813.
+
+- Dunn, John, „Hope over Fear. Judith Shklar as Political Educator", in: Bernard Yack (Hg.), Liberalism without Illusions. Essays on Liberal Theory and the Political Vision of Judith N. Shklar (Chicago: The University of Chicago Press 1996), S. 45-54.
+
+- Flathman, Richard E.: Fraternal, but not Always Sisterly Twins. Negativity and Positivity in Liberal Theory, in:
+Social Research 66(1999)4, S. 1137-1142.
+
+- Fiser, Webb S., [Rezension zu: Judith N. Shklar, After Utopia], in: Ethics 68, no. 3 (1958), S. 217-219.
+
+- Forrester, Katrina, „Hope and Memory in the Thought of Judith Shklar", in: Modern Intellectual History 8, Nr. 3 (2011), S. 159.
+
+- Hall, Edward, „Ideological Self-Consciousness: Judith Shklar on Legalism, Liberalism, and the Purposes of Political Theory"
+", in: Social Philosophy & Policy 2024;41(1):105-125. doi:10.1017/S0265052524000347.
+
+- Hess (Hg.), Between Utopia and Realism. The Political Thought of Judith N. Shklar (Philadelphia: University of Pennsylvania Press 2019), S. 239-252.
+
+- Hess, Andreas, The Political Theory of Judith N. Shklar. Exile from Exile (New York: Palgrave Macmillan 2014).
+
+- Hoffmann, Stanley: Judith Shklar as Political Thinker, *Political Theory*, Vol. 21, No. 2 (May, 1993), pp. 172-180.
+
+- Honneth, Axel, „Die Historizität von Furcht und Verletzung. Sozialdemokratische Züge im Denken von Judith Shklar", in: ders., Vivisektionen eines Zeitalters. Porträts zur Ideengeschichte des 20. Jahrhunderts (Berlin: Suhrkamp 2014), S. 248-262.
+
+- Ignatieff, Michael, [Rezension zu: Judith N. Shklar, Ordinary Vices], in: The Political Quarterly 56, Nr. 3 (1985), S. 309-312.
+
+- Levinson, Sanford, „Is Liberal Nationalism an Oxymoron? An Essay for Judith Shklar" S. 626-645.
+
+- Memorial Tributes to Judith Nisse Shklar, 1928-1992. A Service in Memory of Judith Nisse Shklar, Cowles Professor of Government, Harvard University, 24 September 1928-17 September 1992. The Memorial Church, Harvard University, Friday, 6 November 1992 (Cambridge, Mass. 1992).
+
+- Misra, Shefali, „Ugly Attachments: Judith Shklar and the Unattractive Face of Solidarity", in: Global Intellectual History 7, Nr. 4 (2022): S. 685-701.
+
+- Moyn, Samuel, „Before - and Beyond - the Liberalism of Fear", in: Samantha Ashenden und Andreas Hess (Hg.), Between Utopia and Realism. The Political Thought of Judith N. Shklar (Philadelphia: University of Pennsylvania Press 2019), S. 24-46.
+
+- Moyn, Samuel, „Judith Shklar über die Philosophie des Völkerstrafrechts", , in: Deutsche Zeitschrift für Philo-
+sophie 62, Nr. 4 (2014), S. 683-707.
+
+- Müller, Jan-Werner, Furcht und Freiheit. Für einen anderen Liberalismus (Berlin: Suhrkamp 2019).
+
+- Sabl, Andrew, „Judith Shklar, Ordinary Vices, in: Jacob T. Levy (Hg.), The Oxford Handbook of Classics in Con-temporary Political Theory (Oxford: Oxford University Press 2019), https://doi.org/10.1093/oxfordhb/9780198717133.013.5.
+
+- Salaverría, Heidi, „Ungeregelte Zweifel und politische Urteilsbildung bei Judith Shklar und Jacques
+Rancière", in: Deutsche Zeitschrift für Philosophie 62, Nr. 4 (2014), S. 708-726.
+
+- Ulrich, Amadeus, „Furcht und Elend in der Demokratie. Zur Aktualität des politischen Denkens von Judith N. Shklar", , in: Zeitschrift für Politische Theorie 13, Nr. 1-2 (2023), S. 69-89.
+
+- Unrau, Christine, „Judith Shklars Sinn für Veränderung", in: Zeitschrift für Politische Theorie 9, Nr. 2 (2018
+[2020]), S. 239-251.
+
+- Voigt, Peter, „Skepsis und Sozialdemokratie - Mésalliance oder Zukunftsbündnis? Ein Plädoyer im Anschluss an Judith Shklar", in: Zeitschrift für Politische Theorie 9, Nr. 2 (2018 [2020]), S. 223-238.
+
+- Walzer, Michael, „Über negative Politik", in: Shklar, Der Liberalismus der Furcht, S. 87-105.
+
+- Wolin, Sheldon S., [Rezension zu: Judith N. Shklar, After Utopia], in: Natural Law Forum 5 (1960), S. 163-177.
 
 -	Zeitschrift für Theoretische Philosophie:[Themenheft zur Shklars politischer Philosophie](hhttps://shop.budrich.de/wp-content/uploads/2022/01/1869-3016-2018-2.pdf)
 

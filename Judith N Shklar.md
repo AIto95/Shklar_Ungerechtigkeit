@@ -199,45 +199,44 @@ Diese Werke prägen bis heute Debatten über Liberalismus, Gerechtigkeit und pol
 
 - Wolin, Sheldon S., [Rezension zu: Judith N. Shklar, After Utopia], in: Natural Law Forum 5 (1960), S. 163-177.
 
--	Zeitschrift für Theoretische Philosophie:[Themenheft zur Shklars politischer Philosophie](hhttps://shop.budrich.de/wp-content/uploads/2022/01/1869-3016-2018-2.pdf)
+-	Zeitschrift für Theoretische Philosophie:[Themenheft zur Shklars politischer Philosophie](hhttps://shop.budrich.de/wp-content/uploads/2022/01/1869-3016-2018-2.pdf).
 
-- Rieke Trimçev: [Verbindlichkeitskonflikte und politische Verpflichtung](https://www.ssoar.info/ssoar/bitstream/handle/document/66276/ssoar-zpth-2018-2-trimcev-Verbindlichkeitskonflikte_und_politische_Verpflichtung.pdf?sequence=2&isAllowed=y&lnkname=ssoar-zpth-2018-2-trimcev-Verbindlichkeitskonflikte_und_politische_Verpflichtung.pdf)
+- Rieke Trimçev: [Verbindlichkeitskonflikte und politische Verpflichtung](https://www.ssoar.info/ssoar/bitstream/handle/document/66276/ssoar-zpth-2018-2-trimcev-Verbindlichkeitskonflikte_und_politische_Verpflichtung.pdf?sequence=2&isAllowed=y&lnkname=ssoar-zpth-2018-2-trimcev-Verbindlichkeitskonflikte_und_politische_Verpflichtung.pdf).
 
 
-**Judith Shklar im Netz (Auswahl)**: 
+**Judith Shklar im Netz (Auswahl)**:
 
--	[Die politische Philosophie der Judith N. Shklar - Liberalismus ohne Illusionen](https://www.br.de/mediathek/podcast/radiowissen/die-politische-philosophie-der-judith-n-shklar-liberalismus-ohne-illusionen/1853684)
+-	[Die politische Philosophie der Judith N. Shklar - Liberalismus ohne Illusionen](https://www.br.de/mediathek/podcast/radiowissen/die-politische-philosophie-der-judith-n-shklar-liberalismus-ohne-illusionen/1853684).
 
--	[Judith N. Shklar: „Über Hannah Arendt“. Kritik unter Geistesgrößen](https://www.deutschlandfunkkultur.de/judith-n-shklar-ueber-hannah-arendt-kritik-unter-100.html)
+-	[Judith N. Shklar: „Über Hannah Arendt“. Kritik unter Geistesgrößen](https://www.deutschlandfunkkultur.de/judith-n-shklar-ueber-hannah-arendt-kritik-unter-100.html).
 
-- [Buchkritik von H. Bajohr](https://www.deutschlandfunkkultur.de/buchkritik-ad-judith-n-shklar-von-hannes-bajohr-rieke-trimcev-dlf-kultur-6782831d-100.html)
+- [Buchkritik von H. Bajohr](https://www.deutschlandfunkkultur.debuchkritik-ad-judith-n-shklar-von-hannes-bajohr-rieke-trimcev-dlf-kultur-6782831d-100.html).
 
-- [Literaturkritik: Nora Ecker - Wir schauen zu gerne weg](https://literaturkritik.de/shklar-ueber-ungerechtigkeit,28533.html)
+- [Literaturkritik: Nora Ecker - Wir schauen zu gerne weg](https://literaturkritik.de/shklar-ueber-ungerechtigkeit,28533.html).
 
-- [MacArthur Foundation: Judith N. Shklar](https://www.macfound.org/fellows/class-of-march-1984/judith-n-shklar)
+- [MacArthur Foundation: Judith N. Shklar](https://www.macfound.org/fellows/class-of-march-1984/judith-n-shklar).
 
-- [Seyla Benhabib:Judith Nisse Shklar](https://bpb-us-w2.wpmucdn.com/campuspress.yale.edu/dist/3/949/files/2016/05/Judith-Nisse-Shklar-1928-1992-Proceedings-of-the-APA-1vyo0j1.pdf)
+- [Seyla Benhabib:Judith Nisse Shklar](https://bpb-us-w2.wpmucdn.com/campuspress.yale.edu/dist/3/949/files/2016/05/Judith-Nisse-Shklar-1928-1992-Proceedings-of-the-APA-1vyo0j1.pdf).
 
-- [Bunk:Judith N. Shklar](https://www.bunkhistory.org/tags/persons/judith-n-shklar)
+- [Bunk:Judith N. Shklar](https://www.bunkhistory.org/tags/persons/judith-n-shklar).
 
-- [Alexander Cammann(Zeit Online): Judith Shklar. Triumph einer Außenseiterin](https://www.zeit.de/2017/27/judith-nisse-shklar-philosophin-liberalismus-sammelband)
+- [Alexander Cammann(Zeit Online): Judith Shklar. Triumph einer Außenseiterin](https://www.zeit.de/2017/27/judith-nisse-shklar-philosophin-liberalismus-sammelband).
 
-- [Katharina Kaufmann (Theorieblog): Dialog zwischen einer Exilantin und einem Staatsbürger – Lesenotiz zu Judith Shklar über „Verpflichtung, Loyalität, Exil“](https://www.theorieblog.de/index.php/2019/12/dialog-zwischen-einer-exilantin-und-einem-staatsbuerger-lesenotiz-zu-judith-shklar-ueber-verpflichtung-loyalitaet-exil/)
+- [Katharina Kaufmann (Theorieblog): Dialog zwischen einer Exilantin und einem Staatsbürger – Lesenotiz zu Judith Shklar über „Verpflichtung, Loyalität, Exil“](https://www.theorieblog.de/index.php/2019/12/dialog-zwischen-einer-exilantin-und-einem-staatsbuerger-lesenotiz-zu-judith-shklar-ueber-verpflichtung-loyalitaet-exil/).
 
-- [Dr. Sandra von Siebenthal:Judith Shklar: Liberalismus der Furcht (Rezension)](https://denkzeiten.com/2023/06/26/judith-shklar-liberalismus-der-furcht/)
+- [Dr. Sandra von Siebenthal:Judith Shklar: Liberalismus der Furcht (Rezension)](https://denkzeiten.com/2023/06/26/judith-shklar-liberalismus-der-furcht/).
 
-- [Wikipedia: Judith Shklar](https://de.wikipedia.org/wiki/Judith_N._Shklar)
+- [Wikipedia: Judith Shklar](https://de.wikipedia.org/wiki/Judith_N._Shklar).
 
-- [Michael Knoll (intellectures): Liberalismus und Demokratie führen eine Zweckehe](https://www.intellectures.de/2021/03/29/liberalismus-und-demokratie-fuehren-eine-zweckehe/)
+- [Michael Knoll (intellectures): Liberalismus und Demokratie führen eine Zweckehe](https://www.intellectures.de/2021/03/29/liberalismus-und-demokratie-fuehren-eine-zweckehe/).
 
 
 **Podcastsendungen (Auswahl)**: 
 
--	[Podcast Filosofie: Judith Shklar](https://podcasts.apple.com/de/podcast/judith-shklar/id1451841760?i=1000646349383)
+-	[Podcast Filosofie: Judith Shklar](https://podcasts.apple.com/de/podcast/judith-shklar/id1451841760?i=1000646349383).
 
--	[Required Reading from: Liberalism of Fear by Judith Shklar](https://podcasts.apple.com/de/podcast/liberalism-of-fear-by-judith-shklar/id1786599014?i=1000681133134)
+-	[Required Reading from: Liberalism of Fear by Judith Shklar](https://podcasts.apple.com/de/podcast/liberalism-of-fear-by-judith-shklar/id1786599014?i=1000681133134).
 
--	[SWR. Das Wissen: Die Politologin Judith Shklar](https://podcasts.apple.com/de/podcast/die-politologin-judith-nisse-shklar-wie-demokratien/id104913043?i=1000501341831)
+-	[SWR. Das Wissen: Die Politologin Judith Shklar](https://podcasts.apple.com/de/podcast/die-politologin-judith-nisse-shklar-wie-demokratien/id104913043?i=1000501341831).
 
--	[Talking Politics: Shklar on Hypocrisy](https://podcasts.apple.com/de/podcast/shklar-on-hypocrisy/id1508992867?i=1000517869772)
-
+-	[Talking Politics: Shklar on Hypocrisy](https://podcasts.apple.com/de/podcast/shklar-on-hypocrisy/id1508992867?i=1000517869772). 

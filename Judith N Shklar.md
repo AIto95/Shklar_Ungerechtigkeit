@@ -122,7 +122,7 @@ Dieses frühe Werk kritisiert utopisches Denken in der politischen Theorie und p
 Ihre kritischen Texte über Hannah Arendt beleuchten Unterschiede in den Denkansätzen der beiden Philosophinnen, insbesondere in Bezug auf Exil, Freiheit und politische Romantik. Diese Essays sind besonders relevant für das Verständnis von Shklars Position im Vergleich zu anderen großen politischen Theoretikern[2].
 Diese Werke prägen bis heute Debatten über Liberalismus, Gerechtigkeit und politische Ethik und machen Judith Shklar zu einer der bedeutendsten Denkerinnen des 20. Jahrhunderts.
 
-# **Zum Nachforschen**
+# **Zum Nachforschen:**
 
 **Ausgewählte Sekundärliteratur** 
 

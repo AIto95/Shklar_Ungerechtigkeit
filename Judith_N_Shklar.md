@@ -9,7 +9,7 @@ Judith N. Shklar (1928-1992) war eine bedeutende Theoretikerin des politischen L
 
 * Moritz Riemann [riemann@philsem.uni-kiel.de](riemann@philsem.uni-kiel.de) 
 
-* Sprechstundentermine im Sommersemester: **xxx**  |  Boschstraße 1, R. 01.001 | **Keine Anmeldung erforderlich** | Nach Absprache auch digital oder telephonisch unter 0431 880 5644
+* Sprechstundentermine im Sommersemester: **Mittwochs 14-15 Uhr** |  Boschstraße 1, R. 01.001 | **Keine Anmeldung erforderlich** | Nach Absprache auch digital oder telephonisch unter 0431 880 5644
 
 ## "Regierungserklärung"
 
@@ -34,19 +34,19 @@ Beachten Sie die Handreichung zum wissenschaftlichen Arbeiten im Fach Philosophi
 
 ## Semesterplan
 
-| **22.04.2025** | **Eröffnung, Organisatorisches** | **Referat** |
+| **22.04.2025** | **Eröffnung, Organisatorisches, Einleitung** | **Protokoll** |
 |------------|------------------------------|---------|
-| 29.04.2025 | ---| -- |
-| 06.05.2025 |  ---| -- |
-| 13.05.2025 | ---| -- |
-| 20.05.2025 | ---| -- |
-| 27.05.2025 |---| -- |
-| 03.06.2025 | ---| -- |
-| 10.06.2025| ---| -- |
-| 17.06.2025 | ---| -- |
-| 1.07.2025 |---| -- |
-| 08.07.2025| ---| -- |
-| 15.07.2025| **Abschlussdiskussion** | -- |
+| 29.04.2025 | 1 Der Ungerechtigkeit Gerechtigkeit widerfahren lassen S. 27-49| -- |
+| 06.05.2025 | 1 Der Ungerechtigkeit Gerechtigkeit widerfahren lassen S. 50-67| -- |
+| 13.05.2025 | 1 Der Ungerechtigkeit Gerechtigkeit widerfahren lassen S. 67-83| -- |
+| 20.05.2025 | 2 Unglück und Ungerechtigkeit S. 85-108| -- |
+| 27.05.2025 | 2 Unglück und Ungerechtigkeit S. 108-134| -- |
+| 03.06.2025 | 3 Der Sinn für Ungerechtigkeit S. 135-148| -- |
+| 10.06.2025| 3 Der Sinn für Ungerechtigkeit S. 148-165| -- |
+| 17.06.2025 | 3 Der Sinn für Ungerechtigkeit S. 165-182| -- |
+| 24.06.2025 | 3 Der Sinn für Ungerechtigkeit S. 182-202| -- |
+| 01.07.2025| Ergänzungstext oder Vertiefungssitzung| -- |
+| 08.07.2025| **Abschlussdiskussion** | -- |
 
 **Prüfungszeitraum des aktuellen Semesters**:
 14.07. - 26.07.2025

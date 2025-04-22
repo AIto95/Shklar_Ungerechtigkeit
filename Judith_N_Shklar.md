@@ -103,7 +103,7 @@ Erste Frau auf einer Festanstellung im Fachbereich Politische Wissenschaften an 
 
 
 **Der Liberalismus der Furcht (1989)**
-Dieses Werk ist ihr bekanntestes und prägendstes. Es formuliert eine liberale Theorie, die darauf abzielt, Grausamkeit und Machtmissbrauch zu verhindern. Shklar argumentiert, dass der Liberalismus vor allem die Freiheit sichern sollte, ohne Furcht Entscheidungen treffen zu können. Sie befürwortet eine konstitutionelle Demokratie, die Macht begrenzt und verteilt.
+Dieses Werk ist ihr bekanntestes und prägendstes. Es formuliert eine liberale Theorie, die darauf abzielt, Grausamkeit und Machtmissbrauch zu verhindern. Shklar argumentiert, dass der Liberalismus vor allem die Freiheit sichern sollte, ohne Furcht Entscheidungen treffen zu können. Sie befürwortet eine konstitutionelle, repräsentative und menschenrechtlich-liberale Demokratie, die Macht begrenzt und verteilt.
 
 **Ganz normale Laster (1984)**
 
